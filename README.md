@@ -1,12 +1,10 @@
 ### Kamosika's page
 
-###### ホームページをうまく作れるようになるまではここに書いておこうかな
+かもしかです！！
 
-[かもしかのお部屋](https://www.forrexlapis.win/)
+自己紹介とか各種リンクは以下を見てね！！
 
-[しかかも(youtube)](https://www.youtube.com/channel/UCkFysndjIhgcZ-rlL4Bb88Q)
-
-[Unityroom](https://unityroom.com/users/a79wgzk3l28rxu4m16nc)
+https://www.forrexlapis.win/about_me/
 
 ---
 
